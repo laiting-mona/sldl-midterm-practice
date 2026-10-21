@@ -1,1 +1,0 @@
-# sldl-midterm-practice
